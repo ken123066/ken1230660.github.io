@@ -1,1 +1,0 @@
-# ken1230660.github.io
